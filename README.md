@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+I like to build stuff 😄, that's all I want to do...build stuff.
+
+Please feelfree to reach out to me, if you have something worth building... gracias
 <!--
 **qobitech/qobitech** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
