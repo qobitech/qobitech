@@ -2,7 +2,7 @@
 
 I like to build stuff 😄, that's all I want to do...build stuff.
 
-Please feelfree to reach out to me, if you have something worth building... gracias
+Please feel free to reach out, let's collaborate... gracias
 
 edekobifrank@gmail.com 💬
 
