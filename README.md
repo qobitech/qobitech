@@ -1,8 +1,8 @@
 ### Hi there 👋
 
-I like to build stuff 😄, that's all I want to do...build stuff.
+I build useful products.
 
-Please feel free to reach out, let's collaborate... gracias
+Let's collaborate... gracias
 
 edekobifrank@gmail.com 💬
 
